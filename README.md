@@ -1,1 +1,1 @@
-https://denchiquero.github.io/zakrivayuschiy-teg-ad/
+https://github.com/denchiquero/zakrivayuschiy-teg-ad/
